@@ -31,7 +31,7 @@ These functions are fundamental for effectively analyzing and managing data in E
 
 **Date-10 July 2024**
 
-**First Day of Induction Program**
+**First day of Induction Program**
 
 ![gne_front](https://github.com/user-attachments/assets/7832c6ab-e3b5-434a-a09b-c30d89085690)
 
@@ -40,7 +40,7 @@ After seeking blessings from Guru Granth Sahib Ji, I reached Auditorium where i 
 
 **Date-11 July 2024**
 
-**Second Day of Induction Program** 
+**Second day of Induction Program** 
 
 Firstly Mr. Arvind Dhingra addressed us who is the chairman of "TECHNICAL ACTIVITES COMMITTEE".He informed us about different committees available in the college.some of the committees are;
 1.SCIE(Student chapter of institution of engineering) which is found in 1969
@@ -57,7 +57,7 @@ He also told us about the 3P's of success : **Passion,Persistence,Patience**.
 
 **Date-12 July 2024**
 
-**Third Day of Induction Program**
+**Third day of Induction Program**
 
 On third day we had our first lecture with our seniors.They taught us about Excel and chatgpt.It was a very informative interaction with  our peers.After this I had maths lecture which was quite interesting.Sir discussed Differentiation, a topic from 12th standard.Since the topic was already known,I find it easy to understand.
 
