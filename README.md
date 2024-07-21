@@ -5,7 +5,8 @@ This is my first GitHub website.
 | ----------- | ----------- | ----------|
 | 15.07.24 | Dr. Pyare Lal Garg | Dr. garg told us important things |
 
-**My Excel Certificate**
+# Sukhdeepkaur1312.github.io
+##My Excel Certificate##
 
 (https://github.com/user-attachments/assets/0a68d85f-ae66-4662-82f3-ff8bd41f24a0)
 
