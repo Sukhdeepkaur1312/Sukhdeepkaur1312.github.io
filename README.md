@@ -25,7 +25,7 @@ The MAX function identifies the highest number in a range. For example, =MAX(B8:
 These functions are fundamental for effectively analyzing and managing data in Excel.
 
 
-# Sukhdeepkaur1312.github.io
+**REPORT OF INDUCTION PROGRAM**
 
 **Date-10 July 2024**
 **First Day of Induction Program**
