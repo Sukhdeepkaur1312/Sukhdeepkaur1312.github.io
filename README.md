@@ -1,6 +1,6 @@
 # Sukhdeepkaur1312.github.io 
 
-#**My Excel Certificate**
+**My Excel Certificate**
 
 ![etuebilj](https://github.com/user-attachments/assets/6cb4882e-6f45-450b-8a61-a8aa1df8c0a4)
 
@@ -84,6 +84,7 @@ The fourth lecture was of one of my senior.Our senior pancham jai singh gill Sir
 Today we reached the physics lab for  english activities.It was quite fascinating.We palyed spellbee.Then we had a debate on the topic"Is college degree enough to become successful in life".I spoke in favour of this topic.After this, our senior spoke some shayaris.I also spoke the poem which i wrote for my farewell and everyone liked it very much.
 
 **Date-17 July 2024**
+
 **Sixth day of Induction Peogram**
 
 ![WhatsApp Image 2024-07-21 at 4 09 39 PM](https://github.com/user-attachments/assets/a270a7f0-d2d7-49d1-9128-12ff168fa714)
