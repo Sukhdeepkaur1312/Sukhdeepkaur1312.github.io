@@ -8,6 +8,7 @@ This is my first GitHub website.
 # Sukhdeepkaur1312.github.io
 ##My Excel Certificate##
 
+_![Excel certificate ]
 (https://github.com/user-attachments/assets/0a68d85f-ae66-4662-82f3-ff8bd41f24a0)
 
 _My experience with Excel through this online course has been very positive. I have learned a great deal and gained extensive knowledge about this powerful tool. Excel is a spreadsheet program developed by Microsoft and is a key component of the Office product suite for business applications. It enables users to format, organize, and calculate data in a spreadsheet._
