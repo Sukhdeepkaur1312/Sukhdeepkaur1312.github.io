@@ -1,6 +1,6 @@
 # Sukhdeepkaur1312.github.io 
 
-**My Excel Certificate**
+# **My Excel Certificate**
 
 ![etuebilj](https://github.com/user-attachments/assets/6cb4882e-6f45-450b-8a61-a8aa1df8c0a4)
 
