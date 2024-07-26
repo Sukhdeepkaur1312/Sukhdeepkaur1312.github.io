@@ -152,21 +152,34 @@ Second lecture was of chemistry.As the professor was absent, one of the physics 
 
 **Eleventh day of Induction Program**
 
+
 ![WhatsApp Image 2024-07-26 at 9 31 30 PM](https://github.com/user-attachments/assets/befd6909-51e3-4689-bc80-8bebb4415316)
 
 
-First lecture was of Mr. Gauravdeep Singh.He is an outstanding individual who has received numerous national awards. He is the owner of "IOC" and comes from a modest background. His mother struggled with depression, and his father ran a dhaba (roadside eatery).He shared his journey of success with us, highlighting his personal and academic challenges. During his early years, he enjoyed life and achieved excellent results in his 10th-grade exams, which allowed him to pursue the science stream. However, in 11th grade, he became less serious about his studies and failed his exams. His principal called his mother to school, and seeing her distress deeply affected him.Determined to make a difference for his mother and improve his situation, he reassessed his goals and chose the best path forward. He dedicated himself to his studies and ultimately achieved an impressive 96.8% in his exams, topping the district.He also shared his experiences with physical and financial challenges and provided insights on how to address and overcome these issues. His lecture left a significant impact on me, providing valuable knowledge and inspiration.
+_First lecture was of Mr. Gauravdeep Singh.He is an outstanding individual who has received numerous national awards. He is the owner of "IOC" and comes from a modest background. His mother struggled with depression, and his father ran a dhaba (roadside eatery).He shared his journey of success with us, highlighting his personal and academic challenges. During his early years, he enjoyed life and achieved excellent results in his 10th-grade exams, which allowed him to pursue the science stream. However, in 11th grade, he became less serious about his studies and failed his exams. His principal called his mother to school, and seeing her distress deeply affected him.Determined to make a difference for his mother and improve his situation, he reassessed his goals and chose the best path forward. He dedicated himself to his studies and ultimately achieved an impressive 96.8% in his exams, topping the district.He also shared his experiences with physical and financial challenges and provided insights on how to address and overcome these issues. His lecture left a significant impact on me, providing valuable knowledge and inspiration._
+
 
 ![WhatsApp Image 2024-07-26 at 9 31 29 PM](https://github.com/user-attachments/assets/9f551637-fb6e-441f-93cf-144a2a78d793)
 
 
-Secondly, we interacted with Er.Lakhveer singh Coordinator CML.Lakhveer sir tell us about CML.He told us about the mission,vision and list of equipments.
+_Secondly, we interacted with Er.Lakhveer singh Coordinator CML.Lakhveer sir tell us about CML.He told us about the mission,vision and list of equipments._
+
 
 ![WhatsApp Image 2024-07-26 at 9 31 28 PM](https://github.com/user-attachments/assets/6be26730-dcea-44b8-8f4a-d7ba0f456ea6)
 
 
-Last interaction of the day was the causmic club.We got to know about causmic club and were told about the opening of recuritmenrts.Some of the seniors and batchmates also performed and showed their skills of singing and shayaris.
+_Last interaction of the day was the causmic club.We got to know about causmic club and were told about the opening of recuritmenrts.Some of the seniors and batchmates also performed and showed their skills of singing and shayaris._
 
+
+**Date-25 July 2024**
+
+**Twelfth day of Induction Program**
+
+
+![WhatsApp Image 2024-07-26 at 9 41 54 PM](https://github.com/user-attachments/assets/597abf26-317f-4a54-b5a6-e03a55b9c4c8)
+
+
+The day started with the chemistry lecture by Karan Bhala sir.hE taught and discussed with us the basic concept of organic,inorganic and physical chemistry.It was a quite interesting lecture.Next lecture was of Prof. Manjot Kaur of UHV. She engaged us in the group discussion on the topic:"IMPORTANCE OF VALUE EDUCATION IN SELF, FAMILY,SOCIETY AND NATURE".After this, there was a hour break.After break there was a maths test on topics of differentiation,integration and differential equation.My test went quite well.
 
 
 
