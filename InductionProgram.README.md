@@ -66,5 +66,80 @@ _Today the first lecture was of Universal Human Values.Mam taught us about coexi
 _Today was a wonderful day.Firstly we interacted with Er.Kanwardeep kalra.She is a very very confident and understanding.She gave us a huge amount of knowledge.She told us about importance of soft skills and asked us to smile in every situation._
 _Secondly, we intereacted with Jaswinder Singh.His lecture was one of the best lecture.He is a very good personality.He is national awarded(shiksha ratan) (inventor lab on wheels). He gave us a huge knowledge about science and mathematics. He told us that nothing is possible in this world with the help of mathematics. He gave us how to count our bones in our body._
 
+**Date-22 July 2024**
+
+**Nineth day  of Induction Progaram**
+
+![WhatsApp Image 2024-07-26 at 8 46 21 PM](https://github.com/user-attachments/assets/2b8ca054-cb91-4939-a946-6bb00af56a04)
+
+
+Dr. S.B. Singh
+
+Dr. S.B. Singh is an exceptional individual who taught us valuable lessons in self-awareness and personal growth. He guided us on how to better understand ourselves by conducting a thoughtful exercise. He instructed us to take a page from our notebook, write down our name, the place where we completed our studies, our percentage in the 12th examination, our address, and pin code. Additionally, he asked us to note our weaknesses and strengths.
+
+Dr. Singh then gave us three minutes to envision a dream and write it on the page. After collecting all the pages, he helped us reflect on our hobbies, weaknesses, and strategies for overcoming challenges. This activity greatly enhanced our self-awareness and understanding of how to address our personal development.
+
+Dr. Pushpinder Singh
+
+Dr. Pushpinder Singh is a remarkable individual hailing from a family with a strong medical background. He possesses extensive knowledge, which he generously shared with us. He emphasized the importance of identifying our skills and learning preferences, whether through writing, listening, or other methods.
+
+**Date-23 July 2024**
+
+**Tenth day of Induction Program**
+
+ First lecture was of Prof. Jasleen Kaur. She discussed with us 9 feelings of human.
+ Respect: This value can evoke feelings of admiration and honor. When people are treated with respect, they often feel valued and validated.
+
+Compassion: Compassion tends to generate feelings of warmth and caring. It inspires a sense of empathy and a desire to help others in need.
+
+Justice: A commitment to justice can lead to feelings of satisfaction and fairness when individuals believe that people are being treated equitably.
+
+Integrity: Acting with integrity often brings about feelings of pride and self-respect. It involves a sense of alignment between one’s actions and values.
+
+Responsibility: Taking responsibility can evoke feelings of accomplishment and reliability. It involves a sense of duty and commitment to one's actions and their impacts.
+
+Freedom: Experiencing freedom can result in feelings of empowerment and liberation. It fosters a sense of autonomy and the ability to make choices.
+
+Solidarity: This value can create feelings of connection and unity. It promotes a sense of belonging and mutual support among individuals.
+
+Empathy: Empathy brings about feelings of understanding and shared experience. It helps individuals connect deeply with others' emotions and situations.
+
+Gratitude: When people experience and express gratitude, they often feel a deep sense of appreciation and thankfulness. This feeling reinforces positive social bonds and recognition of others' contributions.
+
+Second lecture was of chemistry.As the professor was absent, one of the physics prof intereacted us.He told us about the LASER.
+
+**Date-24 July 2024**
+
+**Eleventh day of Induction Program**
+
+
+![WhatsApp Image 2024-07-26 at 9 31 30 PM](https://github.com/user-attachments/assets/befd6909-51e3-4689-bc80-8bebb4415316)
+
+
+_First lecture was of Mr. Gauravdeep Singh.He is an outstanding individual who has received numerous national awards. He is the owner of "IOC" and comes from a modest background. His mother struggled with depression, and his father ran a dhaba (roadside eatery).He shared his journey of success with us, highlighting his personal and academic challenges. During his early years, he enjoyed life and achieved excellent results in his 10th-grade exams, which allowed him to pursue the science stream. However, in 11th grade, he became less serious about his studies and failed his exams. His principal called his mother to school, and seeing her distress deeply affected him.Determined to make a difference for his mother and improve his situation, he reassessed his goals and chose the best path forward. He dedicated himself to his studies and ultimately achieved an impressive 96.8% in his exams, topping the district.He also shared his experiences with physical and financial challenges and provided insights on how to address and overcome these issues. His lecture left a significant impact on me, providing valuable knowledge and inspiration._
+
+
+![WhatsApp Image 2024-07-26 at 9 31 29 PM](https://github.com/user-attachments/assets/9f551637-fb6e-441f-93cf-144a2a78d793)
+
+
+_Secondly, we interacted with Er.Lakhveer singh Coordinator CML.Lakhveer sir tell us about CML.He told us about the mission,vision and list of equipments._
+
+
+![WhatsApp Image 2024-07-26 at 9 31 28 PM](https://github.com/user-attachments/assets/6be26730-dcea-44b8-8f4a-d7ba0f456ea6)
+
+
+_Last interaction of the day was the causmic club.We got to know about causmic club and were told about the opening of recuritmenrts.Some of the seniors and batchmates also performed and showed their skills of singing and shayaris._
+
+
+**Date-25 July 2024**
+
+**Twelfth day of Induction Program**
+
+
+![WhatsApp Image 2024-07-26 at 9 41 54 PM](https://github.com/user-attachments/assets/597abf26-317f-4a54-b5a6-e03a55b9c4c8)
+
+
+The day started with the chemistry lecture by Karan Bhala sir.hE taught and discussed with us the basic concept of organic,inorganic and physical chemistry.It was a quite interesting lecture.Next lecture was of Prof. Manjot Kaur of UHV. She engaged us in the group discussion on the topic:"IMPORTANCE OF VALUE EDUCATION IN SELF, FAMILY,SOCIETY AND NATURE".After this, there was a hour break.After break there was a maths test on topics of differentiation,integration and differential equation.My test went quite well.
+
 
 
