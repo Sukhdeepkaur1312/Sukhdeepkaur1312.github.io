@@ -106,9 +106,9 @@ Today the first lecture was of Universal Human Values.Mam taught us about coexis
 Today was a wonderful day.Firstly we interacted with Er.Kanwardeep kalra.She is a very very confident and understanding.She gave us a huge amount of knowledge.She told us about importance of soft skills and asked us to smile in every situation.
 Secondly, we intereacted with Jaswinder Singh.His lecture was one of the best lecture.He is a very good personality.He is national awarded(shiksha ratan) (inventor lab on wheels). He gave us a huge knowledge about science and mathematics. He told us that nothing is possible in this world with the help of mathematics. He gave us how to count our bones in our body.
 
-**Date-22 July 2024**
+### **Date-22 July 2024**
 
-**Nineth day  of Induction Progaram**
+### **Nineth day  of Induction Progaram**
 
 ![WhatsApp Image 2024-07-26 at 8 46 21 PM](https://github.com/user-attachments/assets/2b8ca054-cb91-4939-a946-6bb00af56a04)
 
@@ -148,9 +148,9 @@ Gratitude: When people experience and express gratitude, they often feel a deep 
 
 Second lecture was of chemistry.As the professor was absent, one of the physics prof intereacted us.He told us about the LASER.
 
-**Date-24 July 2024**
+### **Date-24 July 2024**
 
-**Eleventh day of Induction Program**
+### **Eleventh day of Induction Program**
 
 
 ![WhatsApp Image 2024-07-26 at 9 31 30 PM](https://github.com/user-attachments/assets/befd6909-51e3-4689-bc80-8bebb4415316)
@@ -181,9 +181,9 @@ _Last interaction of the day was the causmic club.We got to know about causmic c
 
 The day started with the chemistry lecture by Karan Bhala sir.hE taught and discussed with us the basic concept of organic,inorganic and physical chemistry.It was a quite interesting lecture.Next lecture was of Prof. Manjot Kaur of UHV. She engaged us in the group discussion on the topic:"IMPORTANCE OF VALUE EDUCATION IN SELF, FAMILY,SOCIETY AND NATURE".After this, there was a hour break.After break there was a maths test on topics of differentiation,integration and differential equation.My test went quite well.
 
-**Date-26 July 2024**
+### **Date-26 July 2024**
 
-## **Last day of Induction Program**
+### **Last day of Induction Program**
 
 
 ![WhatsApp Image 2024-07-27 at 2 56 33 PM](https://github.com/user-attachments/assets/1b65dbca-7223-436a-84e3-f7235cb0c65b)
