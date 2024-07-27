@@ -183,14 +183,14 @@ The day started with the chemistry lecture by Karan Bhala sir.hE taught and disc
 
 **Date-26 July 2024**
 
-# **Last day of Induction Program
+## **Last day of Induction Program**
 
 
 ![WhatsApp Image 2024-07-27 at 2 56 33 PM](https://github.com/user-attachments/assets/1b65dbca-7223-436a-84e3-f7235cb0c65b)
 
 
 The day began with interaction with Dr. Kanwalpreet Kaur Bhatt, a renowned homeopathic practitioner with 20 years of experience. As a meditation counselor, she inspired us all with her wisdom and to make us practice meditation, she held a practical session of meditation for 15 minutes.Further, Principal Dr. Sehijpal Singh engaged with students, emphasizing the importance of co-curricular activities. Director (NSET) S. Inderpal Singh also gave a motivating speech to first year students.
-First-year students showcased their incredible talents through various singing and dancing performances, creating unforgettable memories. The ceremony was a moment of pride as students were awarded prizes for their outstanding achievements in various competitions during the cultural orientation.A big shoutout to the NCC team and Causmic Club for organising this programme with their dedication and hard work. All over the induction Program was inspiring and motivational👍✌️.
+First-year students showcased their incredible talents through various singing and dancing performances, creating unforgettable memories. The ceremony was a moment of pride as students were awarded prizes for their outstanding achievements in various competitions during the cultural orientation.A big shoutout to the NCC team and Causmic Club for organising this programme with their dedication and hard work. All over the induction Program was inspiring and motivational.
 
 
 
